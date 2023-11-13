@@ -100,25 +100,25 @@ _In this picture, I put my finger in from the hip side. In the Video, I put it i
 ## Quick Release 
 
 1.	To release them quickly, pull the quick-release loop.  To do this:
-![Malasana - Quick Release (2)](Malasana-Quick-Release-1.jpg)
+![Malasana - Quick Release (2)](assets/Malasana-Quick-Release-1.jpg)
 
 2.	Grab the bight of the Slipped Somerville Bowline.
-![Malasana - Quick Release (3)](Malasana-Quick-Release-2.jpg)
+![Malasana - Quick Release (3)](assets/Malasana-Quick-Release-2.jpg)
 
 3.	Give it a sharp jerk downward
-![Malasana - Quick Release (4)](Malasana-Quick-Release-3.jpg)
+![Malasana - Quick Release (4)](assets/Malasana-Quick-Release-3.jpg)
 
 4.	The knot falls mostly apart…
-![Malasana - Quick Release (5)](Malasana-Quick-Release-4.jpg)
+![Malasana - Quick Release (5)](assets/Malasana-Quick-Release-4.jpg)
 
 5.	…and you can quickly unwind the wraps…
-![Malasana - Quick Release (6)](Malasana-Quick-Release-5.jpg)
+![Malasana - Quick Release (6)](assets/Malasana-Quick-Release-5.jpg)
 
 6.	…quickly relieving the tension.
-![Malasana - Quick Release (7)](Malasana-Quick-Release-6.jpg)
+![Malasana - Quick Release (7)](assets/Malasana-Quick-Release-6.jpg)
 
 7.	The ropes will completely fall off of that side.
-![Malasana - Quick Release (8)](Malasana-Quick-Release-7.jpg)
+![Malasana - Quick Release (8)](assets/Malasana-Quick-Release-7.jpg)
 
 8.	Then you can slip them off the other side and get your partner into a new position to relieve the issue.
-![Malasana - Quick Release (8)](Malasana-Quick-Release-8.jpg)
+![Malasana - Quick Release (8)](assets/Malasana-Quick-Release-8.jpg)
